@@ -1,4 +1,7 @@
-*Privacy Policy for Image reduce 456:
+---
+title: ""
+---
+# Privacy Policy for Image reduce 456:
 
 - Effective Date: September 23, 2026:
 
